@@ -1,8 +1,8 @@
 - 👋 Olá, sou @alixnie
-- 👀 Estou interessado em me aprofundar em novas areas
-- 🌱 Atualmente estou aprendendo robotica
+- 👀 Estou interessado em me aprofundar em novas áreas
+- 🌱 Atualmente estou aprendendo robótica
 - 💞️ Procuro colaborar em ajudar o planeta
-- 📫 Como entrar em contato comigo @Alixixkae@gmail.com
+- 📫 Como entrar em contato comigo @alixixkae@gmail.com
 - 😄 Pronomes:ele/dela
 
   ![](https://tenor.com/pt-BR/view/mo-dao-zu-shi-our-boys-wei-ying-lan-zhan-the-untamed-gif-24616785)
