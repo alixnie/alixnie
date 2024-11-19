@@ -5,7 +5,7 @@
 - 📫 Como entrar em contato comigo @alixixkae@gmail.com
 - 😄 Pronomes:ele/dela
 
-Meu site deaenvolvido na escola
+Meu site desenvolvido na escola
 ---> https://sites.google.com/al.educacao.sp.gov.br/saladeleituravirtual/indica%C3%A7%C3%A3o-docente
 ![](https://media1.tenor.com/m/7CMHeyJgceMAAAAd/our-boys-mo-dao-zu-shi.gif)
 
