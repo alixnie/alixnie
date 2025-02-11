@@ -2,7 +2,7 @@
 - 👀 Estou interessado em me aprofundar em novas áreas
 - 🌱 Atualmente estou aprendendo robótica
 - 💞️ Procuro colaborar em ajudar o planeta
-- 📫 Como entrar em contato comigo @alixixkae@gmail.com
+- 📫 Como entrar em contato comigo alixixkae@gmail.com
 - 😄 Pronomes:ele/dela
 
 Meu site desenvolvido na escola
